@@ -1,4 +1,4 @@
-Hi, I'm Fouzan M
+hi i am fouan
 A passionate self taught developer
  
 
